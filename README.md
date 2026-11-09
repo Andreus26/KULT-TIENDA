@@ -1,1 +1,0 @@
-# KULT-TIENDA
